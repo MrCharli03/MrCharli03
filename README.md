@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **new projects of my subjects**
 
-- 🌱 I’m currently learning **at University and new projects**
+- 🌱 I’m currently learning **at University of Murcia and new projects**
 
 - 👯 I’m looking to collaborate on **any sort of quality project to bring up my skills.**
 
